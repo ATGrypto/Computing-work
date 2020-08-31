@@ -8,5 +8,5 @@ But Weiyi also had some tricks up his sleeve. What Jaysee and Scott did not know
 In the end, both Jaysee and Scott were almost eaten alive by Weiyi's dogs. They were sent to the hospital once again. <br>
 This time, they told the doctor, "Please help me get stronger and healthier so that I can get revenge on the passer-by who ate our apple." The doctor turned around to reveal a familiar face. <br>
 It was Weiyi. <br>
-Jaysee was shocked and confused. But before he knew it, Weiyi plucked a banana and threw the piece of his banana skin onto Jaysee and ran away hurriedly. <br>
+Jaysee was shocked and confused. But before he knew it, Weiyi pulled out a banana and threw the piece of his banana skin onto Jaysee and ran away hurriedly. <br>
 Stupefied by Weiyi's strategies and intelligence, Jaysee and Scott finally gave up on getting revenge. <br>
