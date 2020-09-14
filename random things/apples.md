@@ -15,4 +15,5 @@ and then they got angry over the apple again and started fighting once more.
 and then they truced and tried to attack weiyi and steal his money to buy more apples for them.
 
 but weiyi was nowhere to be found. the end 
-scott and jaysee were pised off asfSuddenly, Weiyi came back with 50 million apples and started throwing at Scott and Jaysee rapidly, they tried to hide inside their carboard bunker but got destroyed with one hit. Jaysee was still quite pissed with Weiyi and confronted him with his apple. Instead of confronting Weiyi with Jaysee but he was too terrified and hid in the toilet. Jaysee was angry and went to the cubicle Scott was in and bust the door down. Scott then spray water at Jaysee which made him only even more triggered.
+scott and jaysee were pised off asf
+Suddenly, Weiyi came back with fifty million apples and started throwing at Scott and Jaysee. They tried to hide in their carboard bunker but was totally destroyed by the projectiles Weiyi launched. Jaysee was pissed of Weiyi's attack and confronted him with his apples. Scott was hiding inside a cubicle as he was to scared to follow Jaysee and confront Weiyi. Jaysee was really angry and went to the toilet and busted the cubicle door Scott was in. 
