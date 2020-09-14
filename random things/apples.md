@@ -27,5 +27,5 @@ Scott used his ultimate skill and let out a muffled autistic screech, it was the
 The 2 then escaped and returned to what they call their house.
 They were safe.
 For now...
-Jaysee could not stand Scott's scream and came out of the sewage system,throwing feces at Scott. Jaysee also send a troop of apes armed with ak47 to attack Scott. Scott was not aware and almost died in the fight. Scott was triggered, very triggered. Scott took a frying pan and started whacking Jaysee, but Jaysee's body-protection was too strong and broke the frying pan. Scott ran away, Jaysee was victorious.
+Jaysee could not stand Scott's scream and came out of the sewage system,throwing feces at Scott. Jaysee also send a troop of apes armed with ak47 to attack Scott. Scott was not aware and almost died in the fight. Scott was triggered, very triggered. Scott took a frying pan and started whacking Jaysee and threw faeces at jaysee. but Jaysee's body-protection was too strong and broke the frying pan. Scott ran away. However, Jaysee sent a troop of apes armed with ak47s to attack scot, resulting in scot almost dying. Scot then escaped back into the sewer beside their house and lived there instead. Occasionally, the two brothers would plan an attack on wei yi. But at the same time, Wei Yi was also preparing for the two's return...
 
