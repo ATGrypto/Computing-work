@@ -16,3 +16,11 @@ and then they truced and tried to attack weiyi and steal his money to buy more a
 
 but weiyi was nowhere to be found. the end 
 scott and jaysee were pised off asf
+and then they looked for more apples
+but they didnt find any 
+so they got even more angry 
+in the end, they had anger management issues
+so they kept beating each other up
+they were sent to the hospital 
+the end 
+they died 
