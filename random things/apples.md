@@ -11,9 +11,19 @@ This time, they told the doctor, "Please help me get stronger and healthier so t
 It was Weiyi. 
 Jaysee was shocked and confused. But before he knew it, Weiyi plucked a banana and threw the piece of his banana skin onto Jaysee and ran away hurriedly. 
 Stupefied by Weiyi's strategies and intelligence, Jaysee and Scott finally gave up on getting revenge and went back to their broken house. 
-and then they got angry over the apple again and started fighting once more. 
-and then they truced and tried to attack weiyi and steal his money to buy more apples for them.
+They then got angry over the apple again and started fighting once more. 
+They truced and tried to attack weiyi and steal his money to buy more apples for them.
 
-but weiyi was nowhere to be found. the end 
-scott and jaysee were pised off asf
-Suddenly, Weiyi came back with fifty million apples and started throwing at Scott and Jaysee. They tried to hide in their carboard bunker but was totally destroyed by the projectiles Weiyi launched. Jaysee was pissed of Weiyi's attack and confronted him with his apples. Scott was hiding inside a cubicle as he was to scared to follow Jaysee and confront Weiyi. Jaysee was really angry and went to the toilet and busted the cubicle door Scott was in. 
+but weiyi was nowhere to be found. 
+scott and jaysee were really angry
+Suddenly, Weiyi came back with fifty apples and started throwing at Scott and Jaysee. They tried to hide in their carboard bunker but was totally destroyed by the projectiles Weiyi launched. Jaysee was angry at Weiyi's attack and confronted him with his slipper. Scott was hiding inside a cubicle as he was to scared to follow Jaysee and confront Weiyi. Jaysee was really angry and went to the toilet and busted the cubicle door Scott was in. 
+Scott stuffed Jaysee into the toilet bowl and flushed him down. Jaysee then came out in an underground secret lab that belongs to wei yi.
+Just at this moment, Wei yi walked in, holding scott by his neck using his muscular hands. 
+The two were then imprisoned in Wei Yi's lab to use as test subjects. Wei Yi then searched up a howtobasic video and got an idea.
+He programmed an egg launcher that fires 200 eggs per minute and aimed it at jaysee.
+But to Wei Yi's dismay, All the eggs bounced off jaysee. However, Scot did not have such defense. He was absolutely destroyed by the rotten eggs.
+But Scott also has his tactics...
+Scott used his ultimate skill and let out a muffled autistic screech, so powerful that it blinded and deafended Wei Yi for 30 minutes.
+The 2 then escaped and returned to what they call their house.
+They were safe.
+For now...
