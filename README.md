@@ -1,20 +1,19 @@
 # Hello!
-## Hello world! I am Chen Hao Yang, a student from Dunman High School
+### Hello world! I am Chen Hao Yang, a student from Dunman High School.
 
-Hobbies :
+Hobbies:
 
--Chinese Kung Fu
--Studying
--Basketball
--Playing games with friends
--Cooking
+- Chinese Kung Fu
+- Studying
+- Basketball
+- Playing games with friends
+- Cooking
 
-Education :
+Education:
 
--North Vista Primary School
--Dunman High School
+- North Vista Primary School
+- Dunman High School
 
-Stories
-
+Stories:
 
 My stories are available to view in their respective folders. Feel free to view.
