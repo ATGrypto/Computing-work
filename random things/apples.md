@@ -58,6 +58,6 @@ However, Jaysee had heard the commotion going in Scott’s room. By using the SG
 
 After Jaysee sent the photo, a mysterious portal opened, and PewDiePie appeared. seeing that Scott was lying on the floor, PewDiePie approved him of supporting Floor Gang, and he revived Scott. However, Weiyi was banned from r/PewdiepieSubmissions for 90 days. <br>
 
-screaming in shock, Weiyi ran back to his secret lab. Thankfully, Jaysee and Scott were free from Weiyi, and they were safe. <br>
+screaming in shock, Weiyi ran back to his secret lab. Thankfully, Jaysee and Scott were free from Weiyi, and they were safe. For now... <br>
 
 To be continued…
