@@ -52,12 +52,12 @@ Using the opportunity to escape, the two boys rushed back to their home, finally
 
 Unfortunately for them, Weiyi had set up hidden spy cameras all over their house when they were admitted to the hospital. This way, Weiyi could track every single movement that the two boys made. <br>
 
-Weiyi showed up at the boys’ house at 4am in the morning, and sneaked into sSott’s room. After carefully analysing every frame of the Among Us Impostor kill animations, Weiyi shot Scott. <br>
+Weiyi showed up at the boys’ house at 4am in the morning, and sneaked into Scott’s room. After carefully analysing every frame of the Among Us Impostor kill animations, Weiyi shot Scott. <br>
 
 However, Jaysee had heard the commotion going in Scott’s room. By using the SGSecure app, Jaysee took a picture of Weiyi murdering Scott and reported to the police. <br>
 
 After Jaysee sent the photo, a mysterious portal opened, and PewDiePie appeared. seeing that Scott was lying on the floor, PewDiePie approved him of supporting Floor Gang, and he revived Scott. However, Weiyi was banned from r/PewdiepieSubmissions for 90 days. <br>
 
-screaming in shock, Weiyi ran back to his secret lab. Thankfully, Jaysee and Scott were free from Weiyi, and they were safe. For now... <br>
+Screaming in shock, Weiyi ran back to his secret lab. Thankfully, Jaysee and Scott were free from Weiyi, and they were safe. For now... <br>
 
 To be continued…
