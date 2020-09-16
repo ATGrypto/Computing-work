@@ -58,6 +58,8 @@ However, Jaysee had heard the commotion going in Scott’s room. By using the SG
 
 After Jaysee sent the photo, a mysterious portal opened, and PewDiePie appeared. seeing that Scott was lying on the floor, PewDiePie approved him of supporting Floor Gang, and he revived Scott. However, Weiyi was banned from r/PewdiepieSubmissions for 90 days. <br>
 
-screaming in shock, Weiyi ran back to his secret lab. Thankfully, Jaysee and Scott were free from Weiyi, and they were safe. For now... <br>
+screaming in shock, Weiyi ran back to his secret lab. Thankfully, Jaysee and Scott were free from Weiyi, and they were safe. For now...
+
+The next day, Weiyi got his troop of apes armed with banana launchers and started to attack Scott and Jaysee. they were caught off guard and started screaming hysterically, Scott even threw his slipper at Weiyi to warn him to retreat. However, his slippers was too weak to make Weiyi to retreat and Jaysee and Scott ran away. They were really pissed asf and wanted to get revenge on Weiyi but they could not think of any good solutions.  Weiyi was still chasing them, Scott and Jaysee could not outrun him. Suddenly they founded a abandoned toilet bowl and threw it at Weiyi.
 
 To be continued…
